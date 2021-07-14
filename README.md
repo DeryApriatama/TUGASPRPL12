@@ -1,0 +1,2 @@
+# TUGASPRPL12
+TugasPrpl12_DeryApriatama_1900018274_E
